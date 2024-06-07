@@ -2,7 +2,7 @@
 
 I'm gonna make it quick here, and spread
 awareness on a person named MissSkunky.
-also known as pr0fess!onal shipp3r (professional shipper) in
+also known as pr0fess!onal sh!pp3r (professional shipper) in
 Pony Town.
 
 They **groomed** their **16 year old sister** and do **incest** roleplays with them. With ships like *Wincest, and Ashley and Leyley*
